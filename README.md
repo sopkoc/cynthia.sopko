@@ -1,2 +1,0 @@
-# cynthia.sopko
-Personal Website
